@@ -1,1 +1,1 @@
-Undergraduate at CTU Prague FEE
+Undergraduate at CTU Prague
